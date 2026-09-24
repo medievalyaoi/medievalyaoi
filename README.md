@@ -1,2 +1,6 @@
-ugh
-<img width="498" height="493" alt="SKICJHSYUJDSNHUIZJDHU I CANANTNTN" src="https://github.com/user-attachments/assets/59c8ed7c-9d24-4bfa-9beb-b3588795e1f4" />
+⠀
+⠀
+
+<p allign="center">
+<img width="374" height="281" alt="helpppp" src="https://github.com/user-attachments/assets/8e83b4d5-3ccb-4373-8fa0-f456f094c22b" />
+</p>
