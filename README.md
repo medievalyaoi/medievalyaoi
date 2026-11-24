@@ -1,6 +1,8 @@
-⠀
-⠀
+⠀<p align="center">
+<img width="455" height="256" alt="aaaaaahhhhiwannaplayyy" src="https://github.com/user-attachments/assets/7200ffed-0727-4840-871c-feb0c50b9f5a" />
+ </p>
 
-<p allign="center">
-<img width="374" height="281" alt="helpppp" src="https://github.com/user-attachments/assets/8e83b4d5-3ccb-4373-8fa0-f456f094c22b" />
-</p>
+<p align="center">
+  
+https://github.com/user-attachments/assets/10eaaced-d1bf-4fd5-91a2-44e30ed06057
+ </p>
