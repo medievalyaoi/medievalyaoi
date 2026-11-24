@@ -1,7 +1,5 @@
 ⠀⠀⠀
 
-⠀⠀⠀
-
 ⠀<p align="center">
 <img width="455" height="256" alt="aaaaaahhhhiwannaplayyy" src="https://github.com/user-attachments/assets/7200ffed-0727-4840-871c-feb0c50b9f5a" />
  </p>
